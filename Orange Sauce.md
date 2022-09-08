@@ -1,5 +1,7 @@
-La Vic Style Orange Sauce
-===========
+Orange Sauce
+============
+
+Inspired by [La Victoria Taqueria](http://www.lavicsj.com/), but spicier.
 
 ![image](https://user-images.githubusercontent.com/2049665/189216430-2f5a67d3-a256-4eb5-9d89-5db4438cdf9d.png)
 
