@@ -24,5 +24,13 @@ remaining oil.  (The garlic will emulsify everything.)
 
 Yield: ~24 fl oz
 
+Refridgerate overnight before use.  (To hydrate/soften the blended pepper pieces.)
+
+Notes
+-----
+
+Do we really need arbol peppers?  (Would bird's eyes work?)  Maybe fresh peppers?
+
+------------
 
 Modified from: https://www.bayarea.com/eat/kitchen/diy-homemade-orange-sauce/
