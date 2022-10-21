@@ -34,6 +34,5 @@ Do we really need arbol peppers?  (Would bird's eyes work?)  Maybe fresh peppers
 Yep!
 
 Canned diced tomatoes also work.  Different taste, but reasonable.
-------------
 
 Modified from: https://www.bayarea.com/eat/kitchen/diy-homemade-orange-sauce/
