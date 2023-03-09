@@ -35,9 +35,9 @@ Directions
 ![image](https://user-images.githubusercontent.com/2049665/223902336-816fdaa9-ba08-45ef-b28f-4c44d761f9cf.png)
 
 4. Add the water and most but not all of the salt.  Bring to a boil.
-5. Sprinkle in the dough balls slowly while mixing.  Alternate: sprinkle, let them boil, mix them in, etc. 
-until they're all in.  If you mix too fast they'll dissolve.  If you sprinkle too fast they'll clump.  You want lots of little dough balls
-in the soup.
+5. Sprinkle in the dough balls slowly.  Alternate: sprinkle, let them boil, mix them in, etc. 
+until they're all in.  If you mix too fast (before they cook a bit) they'll dissolve.  If you sprinkle too much at one time they'll clump.
+You want lots of little dough balls in the soup.
 6. While still boiling, drizzle in some of the beaten eggs slowly, with a thin stream in a spiral.  Don't overlap the stream,
 and don't mix.
 7. Let the boiling water cook it.  It will puff up the egg bits.  Once cooked, mix.
@@ -46,5 +46,5 @@ and don't mix.
 10. Mix in remaining scallions and turn off the heat.
 
 Let cool a bit before serving if you want it hot.  Or let it cool all the way for the more refreshing version.
-(We often do both, for breakfast then kunch.)
+(We often do both, for breakfast then kunch.)  It will thicken as it cools.
 
