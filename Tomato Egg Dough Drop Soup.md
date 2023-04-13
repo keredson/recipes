@@ -21,7 +21,7 @@ Prepare
 1. Add the flour to a bowl and drizzle in water while mixing, until lots of little clumps form.  This is the trickiest part of the recipe, and 
 takes less water than you think.  It should look like this:
 
-![image](https://user-images.githubusercontent.com/2049665/223899001-490c4bb3-7d1c-4ad3-a251-a68323a8ac5e.png)
+![image](photos/dough%20balls.jpg)
 
 2. Chop scallions, keeping the white and green parts separate.
 3. Cut the tomatoes into wedges (8ths if using regular sized).
