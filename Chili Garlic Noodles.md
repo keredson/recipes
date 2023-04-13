@@ -15,7 +15,7 @@ Make noodles (recommend fresh).  For the sauce:
 - 1 tbsp regular soy sauce
 - 1 tbsp chinese black vinegar
 - 1/2 tsp MSG
-- 1/3 oil
+- 1/3 cup oil
 
 1. Mix all ingredients except the oil and the noodles in a metal bowl.  
 2. Heat the oil to 350°F.  
