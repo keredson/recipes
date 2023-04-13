@@ -1,9 +1,9 @@
 Chili Garlic Noodles
 ====================
 
-![chili garlic noodles](photos/chili garlic noodles.jpg)
+![chili garlic noodles](photos/chili%20garlic%20noodles.jpg)
 
-Make noodles (recommend fresh).  The sauce:
+Make noodles (recommend fresh).  For the sauce:
 
 - 1 head garlic minced
 - 1 tbsp korean crushed pepper powder (prob. any crushed red pepper will do)
@@ -17,7 +17,7 @@ Make noodles (recommend fresh).  The sauce:
 - 1/2 tsp MSG
 - 1/3 oil
 
-1. Mix all ingredients except the oil in a metal bowl.  
+1. Mix all ingredients except the oil and the noodles in a metal bowl.  
 2. Heat the oil to 350°F.  
 3. Pour over other ingedients, stirring quickly. (This will bubble violently.)
 4. Mix in noodles.
