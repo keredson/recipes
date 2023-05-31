@@ -1,0 +1,9 @@
+- 1 can diced tomatoes with juice
+- 1/2c honey
+- 1tbsp Worcestershire sauce
+- two teaspoons onion powder
+- 1 teaspoon garlic powder
+- have teaspoon of black pepper
+- 3 tablespoons fermented jalapeno hot sauce
+- 1 tbsp. molasses
+- half a cup fermented acid
