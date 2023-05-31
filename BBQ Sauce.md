@@ -4,7 +4,8 @@
 - two teaspoons onion powder
 - 1 teaspoon garlic powder
 - have teaspoon of black pepper
-- 3 tablespoons fermented jalapeno hot sauce
+- 1/4c fermented jalapeno slices
+- a few garlic cloves
 - 1 tbsp. molasses
 - half a cup fermented acid
 - quarter teaspoon cumin
