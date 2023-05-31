@@ -6,7 +6,7 @@
 - have teaspoon of black pepper
 - 1/4c fermented jalapeno slices
 - a few garlic cloves
-- 1 tbsp. molasses
+- 2 tbsp. molasses
 - half a cup fermented acid
 - quarter teaspoon cumin
 - half teaspoon mustard seed powder
