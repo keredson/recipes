@@ -7,3 +7,6 @@
 - 3 tablespoons fermented jalapeno hot sauce
 - 1 tbsp. molasses
 - half a cup fermented acid
+- quarter teaspoon cumin
+- half teaspoon mustard seed powder
+- fresh sage
