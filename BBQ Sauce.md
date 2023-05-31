@@ -10,3 +10,6 @@
 - quarter teaspoon cumin
 - half teaspoon mustard seed powder
 - fresh sage
+- 1/8 tsp. clove
+- 1/8 teaspoon allspice
+- 
