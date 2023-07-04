@@ -36,4 +36,6 @@ Notes
 ----
 QFC has the tomatoes online w/ free shipping @ $4/each if you order > $35. They came via FedEx individually bubble wrapped as if there were glass. It was very weird.
 
+It was good w/o the meat too.
+
 Charles said he liked this more than Rao's. 🎉
