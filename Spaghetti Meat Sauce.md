@@ -32,4 +32,8 @@ Directions
 14. Add the ground beef (without the oil).
 15. Bring to simmer again.
 
+Notes
+----
+QFC has the tomatoes online w/ free shipping @ $4/each if you order > $35.
+
 Charles said he liked this more than Rao's. 🎉
