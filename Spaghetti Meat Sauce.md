@@ -34,7 +34,7 @@ Directions
 
 Notes
 ----
-QFC has the tomatoes online w/ free shipping @ $4/each if you order > $35. They came via FedEx individually bubble wrapped as if there were glass. It was very weird.
+QFC has the tomatoes [online](https://www.qfc.com/p/muir-glen-organic-whole-peeled-canned-tomatoes/0072534226013) w/ free shipping @ $4/each if you order > $35. They came via FedEx individually bubble wrapped as if there were glass. It was very weird.
 
 It was good w/o the meat too.
 
