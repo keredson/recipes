@@ -22,8 +22,8 @@ Directions
 4. Add herbs.
 5. Cook shortly until they release some flavor.
 6. Add tomatoes, including juice.
-7. Bring to simmer.
-8. Blend with immersion blender.
+7. Blend with immersion blender.
+8. Bring to a simmer.
 9. In a separate pan, saute the meat until almost brown.
 10. Sprinkle generously with garlic powder.
 11. Finish browning (well).
