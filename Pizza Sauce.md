@@ -9,6 +9,7 @@ Ingredients
 - handful fresh sage
 - 2 tbsp dried basil
 - 1 tbsp dried rosemary
+- 1 tbsp dried oregano
 - 1 tbsp sugar
 - 1 tbsp black pepper
 - 1/2 tsp salt
