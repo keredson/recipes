@@ -26,3 +26,5 @@ Directions
 Notes
 ---
 The milk chunked up. Maybe add after it cooled down? Or possibly it was the acid, or maybe I need to add before blending.
+
+The fermented is probably optional. It's just what I had laying around.
