@@ -6,7 +6,7 @@ Ingredients
 
 - 5 garlic cloves (fermented)
 - 1 red onion (fermented)
-- 1/2 bird's eye pepper (fermented)
+- 1 bird's eye pepper (fermented)
 - 2 tbsp butter
 - 28oz canned tomatoes with juice
 - 1c chicken stock
@@ -31,5 +31,7 @@ The milk chunked up a bit. Maybe add after it cooled down? Or possibly it was th
 The fermented is probably optional. It's just what I had laying around.
 
 Is removing the bay leaf necessary? It seemed still full of flavor.
+
+The bird's eye was pretty spicy if eating by itself, but mild if eating with grilled cheese.  I might go half if all I want is the soup, double if mostly dipping.
 
 This was *really* good despite the notes.  Maybe pair with some country bread.
