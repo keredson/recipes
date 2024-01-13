@@ -1,6 +1,8 @@
 Pineapple Pepper Jam
 ====================
 
+This makes 48 fl. oz. of a loose jam / spread.  If you want a firm jam, increase pectin to 27g / 2%.
+
 Ingredients
 -----------
 
@@ -14,7 +16,8 @@ Directions
 ----------
 
 1. dissolve pectin in a little bit of water
-2. mixed with pineapple chunks and bring to a simmer
+2. mix with pineapple chunks and bring to a simmer
 3. add remaining ingredients
 4. bring to a temperature of 220°F
-5. can 
+5. blend lightly with an immersion blender if necessary, but leave it chunky
+6. can @ 190°F for 1 hour 
