@@ -4,21 +4,23 @@ This recipe uses the Tangzhong method, a type of roux, to create incredibly soft
 Ingredients: 
 
 Tangzhong (Water Roux): 
-60 mL (¼ cup) water
-60 mL (¼ cup) milk
-23 g (2 tbsp) bread flour 
+- 60 mL (¼ cup) water
+- 60 mL (¼ cup) milk
+- 23 g (2 tbsp) bread flour 
 
 Japanese Milk Bread Dough: 
-Tangzhong (at room temperature)
-120 mL (½ cup) milk, lukewarm
-7 g (2 - 2 ¼ tsp) active dry yeast
-50 g (¼ cup) sugar
-15 g (2 tbsp) dry milk powder (optional)
-1 egg
-350 g (about 2 ⅔ cups) bread flour, spoon and leveled
-1 tsp sea salt
-58 g (4 tbsp / ½ stick) unsalted butter, softened 
+- Tangzhong (at room temperature)
+- 120 mL (½ cup) milk, lukewarm
+- 7 g (2 - 2 ¼ tsp) active dry yeast
+- 50 g (¼ cup) sugar
+- 15 g (2 tbsp) dry milk powder (optional)
+- 1 egg
+- 350 g (about 2 ⅔ cups) bread flour, spoon and leveled
+- 1 tsp sea salt
+- 58 g (4 tbsp / ½ stick) unsalted butter, softened 
 
+Instructions
+---
 1. Make the Tangzhong
 Place the water in a small saucepan, add the bread flour, and whisk until smooth and lump-free.
 Add the rest of the milk and whisk to combine.
