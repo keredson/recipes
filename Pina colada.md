@@ -8,3 +8,4 @@ Pina Colada
 - 1 cup silver tequila or rum 
 - 2 cups frozen pineapple chunks
 - 2 cups ice (optional)
+- meat from one coconut (optional; fyi: chunky texture)
