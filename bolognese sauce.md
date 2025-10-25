@@ -22,3 +22,5 @@ Directions
 2. Add garlic, pepper and herbs.
 3. Add all other ingredients.
 4. Simmer for a few hours.
+
+![bolognese](photos/bolognese.jpg)
