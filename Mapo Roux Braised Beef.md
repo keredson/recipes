@@ -10,7 +10,7 @@ Ingredients (Serves 4)
 - Fresh Ginger: 20 g, peeled and grated
 - Garlic: 4-8 cloves, crushed
 - Scallions: one bundle, finely chopped (white parts for cooking, green parts reserved for garnish)
-- Doubanjiang (Sichuan fermented chilli bean paste): 2 tablespoons
+- Doubanjiang (Sichuan fermented chilli bean paste), or other bean paste (ex: Korean): 2 tablespoons
 - Fermented Black Beans (Douchi): 1 tablespoon, rinsed if very salty and lightly mashed
 - Two bird's eye chilies
 - Plain Flour (all-purpose): 2 tablespoons
