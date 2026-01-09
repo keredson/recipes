@@ -1,22 +1,24 @@
+Mapo Roux Braised Beef
+======================
 In this inventive recipe, I fuse classic Sichuan flavours with a French roux-based braise to create a rich, spicy stew that brings out the best in tender beef cheeks (or your favourite braising cut). We’ll start by toasting fragrant Sichuan peppercorns and browning the beef for essential Maillard caramelisation, then sweat down the “holy trinity” of Chinese aromatics—ginger, garlic, and scallions. Instead of simply adding chilli oil at the end, we build a chilli roux that binds the oil, spices, and fermented seasonings (like doubanjiang and black beans) into one silky sauce. Slow-braising for a few hours allows the flour to cook out and deeply infuse the beef with numbing, savoury complexity. The result? A glossy, thick stew with minimal floating oil and maximum flavour—an unconventional twist on Mapo-inspired dishes that will give your taste buds a real treat! 
 
 Ingredients (Serves 4)
-Sichuan Peppercorns: 2 tablespoons (divided use)
-Neutral Oil (e.g. vegetable oil): 2 tablespoons (plus extra if needed)
-Beef Cheeks (or other braising cuts, e.g. short ribs, brisket): 1 kg
-Fresh Ginger: 20 g, peeled and grated
-Garlic: 4 cloves, crushed
-Scallions: 2–3, finely chopped (white parts for cooking, green parts reserved for garnish)
-Doubanjiang (Sichuan fermented chilli bean paste): 2 tablespoons
-Fermented Black Beans (Douchi): 1 tablespoon, rinsed if very salty and lightly mashed
-Chilli Powder: 1 tablespoon (adjust to taste)
-Plain Flour (all-purpose): 2 tablespoons
-Light Soy Sauce: 1 tablespoon
-Dark Soy Sauce: 1 tablespoon
-Shaoxing Wine (or dry sherry): 2 tablespoons
-Water or Stock: ~800 ml total (added gradually; you may need more or less)
-Chinese Black Rice Vinegar (or balsamic): 1 teaspoon (optional, for balancing)
-Salt (optional): to taste
+-----
+- Sichuan Peppercorns: 1 tablespoon, freshly ground (divided use)
+- Neutral Oil (e.g. vegetable oil): 2 tablespoons (plus extra if needed)
+- Beef Cheeks (or other braising cuts, e.g. short ribs, brisket): 1 kg
+- Fresh Ginger: 20 g, peeled and grated
+- Garlic: 4-8 cloves, crushed
+- Scallions: one bundle, finely chopped (white parts for cooking, green parts reserved for garnish)
+- Doubanjiang (Sichuan fermented chilli bean paste): 2 tablespoons
+- Fermented Black Beans (Douchi): 1 tablespoon, rinsed if very salty and lightly mashed
+- Two bird's eye chilies
+- Plain Flour (all-purpose): 2 tablespoons
+- Light Soy Sauce: 1 tablespoon
+- Dark Soy Sauce: 1 tablespoon
+- Shaoxing Wine (or dry sherry): 1/2 cup
+- Stock: 3.5 cups
+- Chinese Black Rice Vinegar (or balsamic): 1 teaspoon (optional, for balancing)
 
 Method
 1. Place 2 tablespoons of Sichuan peppercorns into a dry pan over medium heat. Stir frequently for 1–2 minutes, until they become aromatic (be careful not to scorch them). Remove from heat, allow to cool briefly, then grind or crush. Set aside half for later use. 
@@ -39,9 +41,3 @@ Method
 
 10. Serve on a plate, because you can. 
 
-____
-
-Follow us on Instagram:    / w2kitchn  
-
-
-#W2Kitchen #mapo #sichuancooking
