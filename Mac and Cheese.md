@@ -13,6 +13,7 @@ Ingredients
 - Enough cheddar to make 8 oz total cheese (including the american).
 - 2 tbsp pecorino romano (or similar) cheese
 - 1/2 tsp salt
+- 1 tsp yellow mustard
 - Black pepper to taste (optional)
 
 Directions
